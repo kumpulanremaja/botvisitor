@@ -1,5 +1,12 @@
 #auto Visitor BOT
 
+
+Github : https://github.com/kumpulanremaja/
+Fanspage :  https://facebook.com/4kumpulanremaja
+web : http://kumpulanremaja.com
+Source Bye kumpulan remaja
+
+
 Untuk Menambahkan Visitor dan pageview Blogger atau Wordpress
 Gunakan secara Bijak dan jangan terlalu sering Bozz
 
